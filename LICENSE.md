@@ -1,4 +1,4 @@
-
+Get the ultimate ClickUp for macOS automation with automatic ClickUp for macOS Automation | voice notes + quick search. Featuring voice notes and quick search, it's the best
 
 
 
